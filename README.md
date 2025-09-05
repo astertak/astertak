@@ -3,4 +3,4 @@
  𝘼𝙨𝙩𝙚𝙧 𝘰𝘳 hyuntak
 
    
-uh idk my bf forced to me to get a github js so this mf can add me to his page👎
+uh idk I got forced to get a github js so this mf can add me to his page👎
